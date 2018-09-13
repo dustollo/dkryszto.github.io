@@ -1,1 +1,0 @@
-# dkryszto.github.io
